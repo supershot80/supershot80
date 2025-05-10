@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning A.I.-M.L
 - 💞️ I’m looking to collaborate on various project
-- 📫 How to reach me @supershot80
+- 📫 How to reach me theshivam.mishra12@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
